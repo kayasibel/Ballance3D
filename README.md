@@ -1,3 +1,5 @@
+https://kayasibel.github.io/Ballance3D/
+
 Privacy Policy
 
 Sibel Kaya built the Balance Ball: Escape the Trap app as an Ad Supported app. This SERVICE is provided by Sibel Kaya at no cost and is intended for use as is.
